@@ -1,0 +1,1 @@
+[logo]("ChatGPT Image 10 de ago. de 2025, 00_00_24.png")
